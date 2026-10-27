@@ -6,7 +6,7 @@
   <img src="https://github.com/honeydewbites/honeydewbites/blob/main/Untitled425_20261027180643.webp?raw=true" width="600" />
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Delicious+Handrawn&duration=5001&pause=997&color=C7A1CA&background=FFFFFF00&width=435&lines=if+those+lips+kiss+me%2C+oh%2C+that's+where+i+want+to+die" alt="Typing SVG" /></a>
 <p align="center">
-  <img src="https://github.com/honeydewbites/honeydewbites/blob/main/Untitled425_20261027175922.webp?raw=true.webp?raw=true" width="150" />
+  <img src="https://github.com/honeydewbites/honeydewbites/blob/main/Untitled425_20261027175922.webp?raw=true.webp?raw=true" width="200" />
 </p>
 <p align="center">
   <img src="https://github.com/honeydewbites/honeydewbites/blob/main/Untitled427_20261027201134.webp?raw=true" width="600" />
