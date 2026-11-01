@@ -1,4 +1,5 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Delicious+Handrawn&pause=1000&color=B1A3D2&center=true&vCenter=true&width=435&lines=adored%3A+xalva%2C+gis%2C+dain%2C+maya%2C+alice%2C+luci%2C+more+sexy+PPL%3A3" alt="Typing SVG" /></a>
+<p align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Rubik+Gemstones&size=70&pause=1000&color=BD9DC2&center=true&vCenter=true&width=2600&height=400&separator=%3C&lines=adored%3A+xalva%2C+gis%2C+dain%2C+vio%2C+lucine%2C+maya%2C+alice%2C+%26+more+cuties+%3A3%3Ci+live+with+%23multiplestyles+in+this+game+u+cant+spot+me+without+my+gh+;%29" alt="Typing SVG" /></a>
 <p align="center">
 𝐄𝐒𝐅𝐏 - 𝐀  ཾ   ཾ   ཾ ᕱ ⑅ ᕱ
 <p align="center">
