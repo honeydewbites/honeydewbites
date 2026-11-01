@@ -15,6 +15,3 @@
 </p>
 <p align="center">
 /ᐠ ◞ ᆺ ◟マ
-<p align="center">
-  <img src="https://github.com/honeydewbites/honeydewbites/blob/main/Untitled427_20261027201134.webp?raw=true" width="600" />
-</p>
